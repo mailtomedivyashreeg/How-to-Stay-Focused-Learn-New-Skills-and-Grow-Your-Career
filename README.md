@@ -1,5 +1,8 @@
 •	We all know that learning new things is crucial for both personal and career growth. But let’s be real—distractions are everywhere. After a full day of work, when you finally sit down to focus on learning, your mind feels scattered, and nothing sticks. Despite setting daily goals and to-do lists, it’s hard to stay consistent and actually learn.
+
+
 •	Here’s the thing: You can break through this cycle. The secret lies in creating a routine that combines learning, sharing your progress, and reflecting on what you’re picking up. Let’s dive into a simple, but effective, approach to help you focus, learn, and share your knowledge—all while boosting your career in the process.
+
 
 To make learning stick, you need to have a clear process that keeps you accountable. Here’s a strategy to keep your learning on track while engaging with the world around you—on platforms like LinkedIn and beyond.
 
